@@ -1,7 +1,7 @@
 ---
 title: "Immigration Related Services"
 ---
-Dr. Vermilyea (Dr. Jim) offers psychological assessment for those involved in immigration-related issues such as asylum cases, hardship waivers, spousal abuse (VAWA), u-visas for victims of violent crime, among others. If you have any questions about whether Dr. Vermilyea can handle your cases please feel free to text or call him at 339-224-7695.
+Dr. Vermilyea (Dr. Jim) offers psychological assessment for those involved in all immigration-related issues such as asylum cases, hardship waivers, spousal abuse (VAWA), u-visas for victims of violent crime, among others. If you have any questions about whether Dr. Vermilyea can handle your cases please feel free to text or call him at 339-224-7695.
 
 Dr. Vermilyea works with only the best immigration practices in the Greater Boston Area. References are available upon request. If you are an attorney please feel free to call and discuss Dr. Vermilyea’s services.
 
